@@ -14,14 +14,14 @@
 ✩ We are currently working on our own games!<br>
 \- RPG/2D/Flat world/Horror/Story esc, and so fourth <br>
 <br>
-⦻ we're currently learning python, java. C++, and so fouth! <br>
+⦻ we're currently learning python, java. C++, and so forth! <br>
 <br>
 🜲 We arnt looking for collaborations, Or anything of sorts. As we personally dont think we are that well yet! :D<br>
 <br>
 𖦹 Commissions are open ;; This being for Art / Carrd.Co sites! <br>
 
-💮 🌸 🌻
   <hr>
 <br><br><br><br>
-[Other links/Where to find, and contact us!](https://darkwoodco.carrd.co/)
+
+💮 🌸 🌻
 
